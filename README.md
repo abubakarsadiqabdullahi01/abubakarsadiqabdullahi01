@@ -200,7 +200,7 @@ Graduated: April 2025 | Second Class Upper Honours
 
 - GitHub: [@abubakarsadiqabdullahi01](https://github.com/abubakarsadiqabdullahi01)  
 - LinkedIn: [Abubakar Sadiq Abdullahi](https://www.linkedin.com/in/abubakarsadiqabdullahi01/)  
-- Email: abubakar.sadiq@example.com  
+- Email: abdullahiabubakarsadiq3107@gmail.com  
 - Phone: +234 706 850 3107  
 
 ---
